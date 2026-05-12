@@ -1,4 +1,4 @@
-#  
+#  dandy's world exclusive Scripts is the best dandy's world Script, featuring instant win and auto-collect. Safe and powerful for all your needs.
 
 
 
